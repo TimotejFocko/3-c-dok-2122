@@ -4,6 +4,10 @@ Jhhksadhajdh ajs dhasj hdajs haj hjas hjas hasj halsj hakjhdajkshjksdhaj hlajkh 
 ## O čom to bude
 - o mne
 -  kontakt
--  atd.
+-  atd....
 
         zmena zmena zmena zmena
+        
+        
+        
+        dalsi zmena z firefoxu

@@ -6,3 +6,4 @@ Jhhksadhajdh ajs dhasj hdajs haj hjas hjas hasj halsj hakjhdajkshjksdhaj hlajkh 
 -  kontakt
 -  atd.
 
+        zmena zmena zmena zmena
